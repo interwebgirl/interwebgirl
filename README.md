@@ -1,3 +1,3 @@
- Hi, I’m @interwebgirl, I make music for the most part and I also just kind of     exist ig
+Hi, I’m sybil, I'm a hobbyist musician, artist, and gamedev !
 
- if you wanna get in contact with me message me on telegram or discord @interwebgirl
+if you wanna get in contact with me message me on my discord or my telegram @interwebgirl
